@@ -1,2 +1,5 @@
 # hello-world
-I dont even know bruj
+I dont even know bruh
+
+Uhm i type stuff? 
+knml
